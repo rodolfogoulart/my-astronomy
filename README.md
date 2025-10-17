@@ -22,3 +22,4 @@ https://www.moonconnection.com/
 
 ## Lojas
 https://fotonastro.com.br/ref/108/
+https://pt.aliexpress.com/item/4001237468257.html?srcSns=sns_Copy&spreadType=socialShare&bizType=ProductDetail&social_params=21351953063&aff_fcid=a5b0f6571e5d4f20a709f90f6402a7e7-1760724690790-03831-_mrMqxpQ&tt=MG&aff_fsk=_mrMqxpQ&aff_platform=default&sk=_mrMqxpQ&aff_trace_key=a5b0f6571e5d4f20a709f90f6402a7e7-1760724690790-03831-_mrMqxpQ&shareId=21351953063&businessType=ProductDetail&platform=AE&terminal_id=2afe1b3d93c14d93b9f0af0d1339b933&afSmartRedirect=y
