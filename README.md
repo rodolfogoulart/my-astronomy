@@ -1,7 +1,7 @@
 # my-astronomy
 Repositório com informações sobre astronomia
 
-## Verificação da declinação da terra
+## Verificação da declinação da terra (Alinhamento sul celeste)
 https://www.magnetic-declination.com/
 
 ## Calculo para lentes
