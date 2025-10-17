@@ -18,3 +18,7 @@ https://www.astrospheric.com/?Latitude=40.606143&Longitude=-90.332346&Loc=Foreca
 https://www.moonconnection.com/
 
 ## Para verificar o céu em dado momento
+
+
+## Lojas
+https://fotonastro.com.br/ref/108/
