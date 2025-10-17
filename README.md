@@ -26,3 +26,7 @@ https://pt.aliexpress.com/item/4001237468257.html?srcSns=sns_Copy&spreadType=soc
 
 ## Oculares
 https://www.mercadolivre.com.br/lente-ocular-svbony-para-telescopios-lunetas-astronomia-1-un/up/MLBU778697050?pdp_filters=item_id:MLB4248723761&matt_tool=35397717&matt_internal_campaign_id=&matt_word=&matt_source=google&matt_campaign_id=22090354487&matt_ad_group_id=173090610716&matt_match_type=&matt_network=g&matt_device=c&matt_creative=727882733250&matt_keyword=&matt_ad_position=&matt_ad_type=pla&matt_merchant_id=488661900&matt_product_id=MLB4248723761&matt_product_partition_id=2408064442785&matt_target_id=aud-1966857867496:pla-2408064442785&cq_src=google_ads&cq_cmp=22090354487&cq_net=g&cq_plt=gp&cq_med=pla&gad_source=1&gad_campaignid=22090354487&gbraid=0AAAAAD93qcAbpgB4SmXdxlhVtpdXwYRzd&gclid=CjwKCAjw0sfHBhB6EiwAQtv5qblagks4bfVkFfKu1_4r95c_hHsH3MrO4A8TvKBnanI3vSsFwtAOsBoC0ZUQAvD_BwE
+
+
+## Tutoriais
+https://www.youtube.com/watch?v=VEPuvPH0qUI
