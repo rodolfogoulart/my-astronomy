@@ -31,8 +31,13 @@ https://www.mercadolivre.com.br/lente-ocular-svbony-para-telescopios-lunetas-ast
 ## Tutoriais
 https://www.youtube.com/watch?v=VEPuvPH0qUI
 https://stellardiscovery.com/how-to-get-started-in-astronomy/
-
+## Motorização
+https://www.youtube.com/watch?v=jXO_7CO4PTU
 
 # Software
 ## Para processamento
 https://stellardiscovery.com/pipp/
+https://sites.google.com/view/sequator/introduction
+http://deepskystacker.free.fr/portuguese/index.html
+
+
