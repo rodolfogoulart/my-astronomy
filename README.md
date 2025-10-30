@@ -42,4 +42,4 @@ https://sites.google.com/view/sequator/introduction
 
 http://deepskystacker.free.fr/portuguese/index.html
 
-
+https://www.astronomie.be/registax/download.html
