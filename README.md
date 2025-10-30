@@ -37,7 +37,9 @@ https://www.youtube.com/watch?v=jXO_7CO4PTU
 # Software
 ## Para processamento
 https://stellardiscovery.com/pipp/
+
 https://sites.google.com/view/sequator/introduction
+
 http://deepskystacker.free.fr/portuguese/index.html
 
 
