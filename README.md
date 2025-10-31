@@ -48,5 +48,5 @@ https://www.astronomie.be/registax/download.html
 # DIY
 https://www.reddit.com/r/telescopes/comments/1lvekmx/building_a_diy_remotecontrolled_telescope/?tl=pt-br
 
-
+https://lista.mercadolivre.com.br/nema-17?sb=all_mercadolibre#D[A:nema%2017]
 
