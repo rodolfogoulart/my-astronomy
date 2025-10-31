@@ -38,6 +38,8 @@ https://revistagalileu.globo.com/Ciencia/noticia/2018/09/7-dicas-para-quem-quer-
 
 https://revistagalileu.globo.com/Revista/noticia/2017/03/guia-basico-da-astronomia-amadora.html
 
+https://www.youtube.com/watch?v=2wI579VhGa4
+
 
 ## Motorização
 https://www.youtube.com/watch?v=jXO_7CO4PTU
