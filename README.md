@@ -31,6 +31,10 @@ https://www.mercadolivre.com.br/lente-ocular-svbony-para-telescopios-lunetas-ast
 ## Tutoriais
 https://www.youtube.com/watch?v=VEPuvPH0qUI
 https://stellardiscovery.com/how-to-get-started-in-astronomy/
+
+https://www.blog.uranum.com.br/post/passo-a-passo-para-encontrar-saturno-no-c%C3%A9u-com-seu-telesc%C3%B3pio
+
+
 ## Motorização
 https://www.youtube.com/watch?v=jXO_7CO4PTU
 
