@@ -34,6 +34,10 @@ https://stellardiscovery.com/how-to-get-started-in-astronomy/
 
 https://www.blog.uranum.com.br/post/passo-a-passo-para-encontrar-saturno-no-c%C3%A9u-com-seu-telesc%C3%B3pio
 
+https://revistagalileu.globo.com/Ciencia/noticia/2018/09/7-dicas-para-quem-quer-observar-o-ceu-e-nao-sabe-por-onde-comecar.html
+
+https://revistagalileu.globo.com/Revista/noticia/2017/03/guia-basico-da-astronomia-amadora.html
+
 
 ## Motorização
 https://www.youtube.com/watch?v=jXO_7CO4PTU
