@@ -43,3 +43,10 @@ https://sites.google.com/view/sequator/introduction
 http://deepskystacker.free.fr/portuguese/index.html
 
 https://www.astronomie.be/registax/download.html
+
+
+# DIY
+https://www.reddit.com/r/telescopes/comments/1lvekmx/building_a_diy_remotecontrolled_telescope/?tl=pt-br
+
+
+
