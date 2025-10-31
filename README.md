@@ -50,3 +50,5 @@ https://www.reddit.com/r/telescopes/comments/1lvekmx/building_a_diy_remotecontro
 
 https://lista.mercadolivre.com.br/nema-17?sb=all_mercadolibre#D[A:nema%2017]
 
+https://www.reddit.com/r/telescopes/comments/g1ah15/motorizing_an_eq32_tripod/?tl=pt-br
+
